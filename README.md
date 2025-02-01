@@ -42,6 +42,7 @@
 
 # Antonia Jones Opening act Juanes Tour Colombia 2024
 
+[Link Tik Tok](https://www.tiktok.com/@/video/7370099283800116486?_r=1&_d=secCgYIASAHKAESPgo8p2xuKNRgwSIWS0fzI%2BTZN7k%2F1WGgTmIFsVVg786h5oJ9uWDMlzJ2gxYP%2BleQ0IvnJxfxHfiNmOksq7PMGgA%3D&u_code=ed0j2k4l461did&share_item_id=7370099283800116486&timestamp=1715994018&utm_campaign=client_share&utm_source=short_fallback&share_app_id=1233)
 
 
 # Ignacio Arango, Bajo y Contrabajo Tracks 1,4,8 y 9
